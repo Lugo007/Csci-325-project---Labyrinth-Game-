@@ -1,1 +1,1 @@
-how we must face all task ---> ![Ptsd-Cat](Ptsd-Cat.jpg)
+how we must face all tasks ---> ![Ptsd-Cat](Ptsd-Cat.jpg)
